@@ -1,1 +1,1 @@
- # [ЧДВС](https://chto_delaem_v_sepruhove.github.io/index.html)
+ # [ЧДВС](https://mingazovm.github.io/chto_delaem_v_seprukhove/)
